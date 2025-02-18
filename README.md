@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sukhi10
+- 👋 Hi, I’m Sukhman Shergill
 - 👀 I’m interested in getting an internship!!!
 - 🌱 I’m currently learning how to make complex projects. 
 - 💞️ I’m looking to collaborate on PROJECTS!
